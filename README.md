@@ -13,4 +13,6 @@ Sempre disposta a aprender mais</p>
 
 ## Contato
 <p>Email: Anakarolinerodriguesvieira3@gmail.com</p>
+<p>!Linkedin: (https://www.linkedin.com/in/ana-karoline-rodrigues-vieira-3a398930a?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app)
+ </p>
 
